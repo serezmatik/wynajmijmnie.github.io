@@ -1,1 +1,0 @@
-# wynajmijmnie.github.io
